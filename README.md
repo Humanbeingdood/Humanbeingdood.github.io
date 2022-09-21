@@ -1,1 +1,1 @@
-# Humanbeingdood.github.io
+# I hate my life
